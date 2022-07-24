@@ -17,5 +17,3 @@ Application video link:
 https://drive.google.com/file/d/1nnMEH23tioOf-rUXcWvByzyPsY_SMau7/view
 
 Application Author Matthew Whiteman
-
-https://drive.google.com/file/d/1nnMEH23tioOf-rUXcWvByzyPsY_SMau7/view
